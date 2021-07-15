@@ -1,1 +1,1 @@
-# 👇 Rapyd_Sleek
+# Rapyd_Sleek
